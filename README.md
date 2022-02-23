@@ -1,0 +1,1 @@
+# hackintosh-ideapad-gaming-3i
